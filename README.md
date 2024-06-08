@@ -7,7 +7,7 @@ Time open:
 Everyday from 9am to 6pm (Except friday)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+https://gamma.app/docs/Welcome-to-Fyora-Shoe-Shop-y23ps1ke0jjnxeb?mode=doc
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
