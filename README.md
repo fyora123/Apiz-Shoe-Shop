@@ -1,7 +1,7 @@
 Shop information
 
-Baker:
-Mr. HAFIZ (Exquisite 3-star Michelin star bakery chef)
+seleer:
+Mr. HAFIZ (branded seller)
 
 Time open:
 Everyday from 9am to 6pm (Except friday)
